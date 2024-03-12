@@ -4,5 +4,4 @@ by Jean Cabrera, Alyanna Cabrera, Bentley Lu, Arvin Tan.
 ## Video Link:
 ### https://www.youtube.com/watch?v=1kyQBSoJK6Y
 ## Collage Link:
-### [https://www.canva.com/design/DAF_R7Lh_ik/dmTNIXeyuwRE4UNzr81Oyw/
-](https://www.canva.com/design/DAF_R7Lh_ik/dmTNIXeyuwRE4UNzr81Oyw/edit?utm_content=DAF_R7Lh_ik&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)https://www.canva.com/design/DAF_R7Lh_ik/dmTNIXeyuwRE4UNzr81Oyw/edit?utm_content=DAF_R7Lh_ik&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+### https://www.canva.com/design/DAF_R7Lh_ik/dmTNIXeyuwRE4UNzr81Oyw/edit?utm_content=DAF_R7Lh_ik&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
